@@ -5,7 +5,7 @@
 - 📫 How to reach me through my email
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I exist and I over thought this file
-
+- 💼 I work for: THE TECHIE AU PTY LTD
 
 
 
